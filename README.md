@@ -2,7 +2,7 @@
 
 If you like the app. please leave a small donation to keep me going !
 
-paypal jdorginals@mmorpgguru.com
+paypal jdorginals at(@) mmorpgguru.com
 
 or sent some crpyto to my coinbase:
 BTC: 31upz9mAeB776ijezCQSdifzSQRBxeHkAu
